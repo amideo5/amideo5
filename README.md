@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **aryantrvd22@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1o6UnjuV7q3pACuDZsMbFEFcPD2Kaw0Wz/view?usp=sharing](https://drive.google.com/file/d/1o6UnjuV7q3pACuDZsMbFEFcPD2Kaw0Wz/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yNp2aP7j0g6u3PDe2wReek_RopwC5rLW/view?usp=drive_link]
 
 - ⚡ Fun fact **I think I will make you laugh in the first meet and cry on the second :)**
 
